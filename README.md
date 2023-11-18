@@ -20,4 +20,6 @@ https://bit.ly/WhatsApp-Hacking-Channel
 
 KMS Key And Server Link:
 
-[Windows Activation.txt](https://github.com/Anonymousmans/Windows-11-Activation/files/13401340/Windows.Activation.txt)
+[Windows Activation.txt](https://github.com/Anonymousmans/Windows-11-Activation/blob/main/Windows%20Activation.txt)
+
+(https://github.com/Anonymousmans/Windows-11-Activation/files/13401340/Windows.Activation.txt)

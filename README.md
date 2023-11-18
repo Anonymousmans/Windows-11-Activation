@@ -16,8 +16,8 @@ Finally, Execute This Command, And You'll Receive An Activation Pop-up For Confi
 
 KMS Key And Server Link:
 
-[Windows Activation.txt](https://github.com/Anonymousmans/Windows-11-Activation/blob/main/Windows%20Activation.txt)
+[Click Here 👈👈](https://github.com/Anonymousmans/Windows-11-Activation/blob/main/Windows%20Activation.txt)
 
 Join Our WhatsApp Channel For Learning Ethical Hacking:
 
-https://bit.ly/WhatsApp-Hacking-Channel
+[Click Here 👈👈](https://bit.ly/WhatsApp-Hacking-Channel)

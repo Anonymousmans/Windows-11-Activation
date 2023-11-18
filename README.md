@@ -1,5 +1,5 @@
 # Windows-11-Activation
-Windows 11 Activation KMS Key And KMS server
+
 Open Cmd As Administrator (Command Prompt)
 
 Now Select The Kms Key According To Your Windows Version, For example, we have Windows 11 Pro N
